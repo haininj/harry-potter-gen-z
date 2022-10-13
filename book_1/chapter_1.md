@@ -167,7 +167,7 @@ A _vroom vroom_ sound broke the silence around them. It grew steadily louder as 
 
 If the motorcycle was huge, it was nothing compared to the beast of a man straddling it. He was almost twice as tall as a normal man and had some major BDE (big dick energy). His fluffy factor was a "Oh hell no" and so wild - long tangles of bushy black hair and beard hid most of his face, he had hands the size of hubcaps, and his feet in their leather boots were like baby dolphins. In his vast, muscular arms he was holding a bundle of blankets.
 
-"Hagrid," said Dumbledore, sounding relieved. "Finally. Where'd you get the ride?"
+"Hagrid," said Dumbledore, sounding hella relieved. "Finally. Where'd you get the ride?"
 
 "Borrowed it, Professor Dumbledore, sir," said the giant, gently disembarking from the bike. "Young Sirius Black lent it to me. I've got him, sir."
 
